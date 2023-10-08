@@ -1,4 +1,4 @@
-# Maybe i don't show , but I Care!
+# Maybe I Don't Show , But I Care!
 ## 🌐 Socials:
 [![Instagram](https://img.shields.io/badge/Instagram-%23E4405F.svg?logo=Instagram&logoColor=white)](https://instagram.com/hossein_star1999) 
 
